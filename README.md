@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AspirinDoped
+- 🌱 I’m interested in programming, but more broadly, creating stuff
+- 💞️ I’m looking to collaborate on any project, as long as I find it interesting
+- 📫 How to reach me : don't, people scare me 👀
